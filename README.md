@@ -116,7 +116,7 @@ Customer Opinion 📚
 <img width="1481" height="912" alt="Screenshot 2025-08-03 003700" src="https://github.com/user-attachments/assets/34d704f9-df01-44e7-92fb-cd8d6dec43c1" />
 
 
-### Made with ❤️ by Raj Singh
+### Made with ❤️ by Shikha Singh
 
 
 
